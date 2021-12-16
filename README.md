@@ -12,5 +12,8 @@
   * **_ At 3:00 school ends and I can finally get home to see my cat and do my homework_**
   
 
+
 ### Bio: **My name is Brandon and i am currently attending HighSchool of Telecommunications Arts and Technology,  I have a cat, and my birthday is december 14th 2006.**
 ### **I attended M.S.51 William Alexander in my middle school years, and for elementary attended Ps.172.**
+=======
+

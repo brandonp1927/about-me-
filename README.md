@@ -10,6 +10,8 @@
   * Then at 7:20 I dress up 
   * 7:30 leave home 
   * **_ At 3:00 school ends and I can finally get home to see my cat and do my homework_**
+  * 
+  Reviewed by Alan Rivera
   
 
 
